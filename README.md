@@ -8,4 +8,4 @@
 
 ✈️欢迎访问我的[blog](https://blog.youngboy.top/ "blog") 
 
-![144ec63c065b3cbae1407.jpg](https://tu.youngboy.top/api/file/144ec63c065b3cbae1407.jpg)
+![3705bad6ae4cc8f92c1de.jpg](https://tu.youngboy.top/api/file/3705bad6ae4cc8f92c1de.jpg)
