@@ -6,6 +6,5 @@
 
 🎁 你的支持是我不断前进的动力！ 💖
 
-✈️欢迎访问我的[blog](https://blog.youngboy.top/ "blog") 
 
 ![3705bad6ae4cc8f92c1de.jpg](https://tu.youngboy.top/api/file/3705bad6ae4cc8f92c1de.jpg)
